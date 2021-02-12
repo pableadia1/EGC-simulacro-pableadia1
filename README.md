@@ -1,1 +1,0 @@
-# EGC-simulacro-pableadia1
